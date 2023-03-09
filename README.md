@@ -1,1 +1,1 @@
-cuman buat mempermudah gw aja bre, kalau mau frok/pakai silahkan aja
+cuman buat mempermudah gw aja bre, kalau mau fork/pakai silahkan aja
